@@ -1,2 +1,2 @@
 # Given-Norman
-Without Jesus there is life
+Without Jesus there is no life
